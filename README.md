@@ -1,4 +1,4 @@
-## vindas ao meu perfil 💙
+## vindas ao meu perfil 🖤
 
 Meu nome é Rafaela Leticia
 
